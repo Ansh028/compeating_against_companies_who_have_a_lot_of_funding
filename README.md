@@ -1,0 +1,1 @@
+# compeating_against_companies_who_have_a_lot_of_funding
